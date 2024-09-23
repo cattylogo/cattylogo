@@ -1,6 +1,4 @@
-  art by [👑 Katya Sair 👑](https://x.com/katya_sair) on X 
-
-<p align="center"> <img src="https://pbs.twimg.com/profile_images/1838061391976058881/vcFlnqsZ_400x400.jpg"> </p>
+<p align="center"> <img src="https://i.pinimg.com/564x/10/a3/bb/10a3bb8c674a3e3d4a6437805db72b25.jpg"> </p>
 
 # <p align="center"> @cattylogo's github </p>
 
