@@ -1,6 +1,6 @@
-  art by [rainwoodwood](https://x.com/rainwoodwood) on X 
+  art by [👑 Katya Sair 👑](https://x.com/katya_sair) on X 
 
-<p align="center"> <img src="https://media.discordapp.net/attachments/1274683725950750793/1287286883390455818/IMG_5591_polarr.jpg?ex=66f0fed5&is=66efad55&hm=f56892d016f7d6f4acb8ab797d5c41914298bd9ad3a637212550c4bdecf05a07&=&format=webp&width=250&height=250"> </p>
+<p align="center"> <img src="https://pbs.twimg.com/profile_images/1838061391976058881/vcFlnqsZ_400x400.jpg"> </p>
 
 # <p align="center"> @cattylogo's github </p>
 
