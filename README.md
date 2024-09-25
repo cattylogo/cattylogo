@@ -1,7 +1,30 @@
-<p align="center"> <img src="https://i.pinimg.com/564x/10/a3/bb/10a3bb8c674a3e3d4a6437805db72b25.jpg"> </p>
+#### [my carrd](https://catty.crd.co/) • [other socials](https://linktr.ee/cattylogo) • dc : @cattylogo (friends only!)
 
-# <p align="center"> @cattylogo's github </p>
+<img src="https://i.pinimg.com/564x/36/5e/2e/365e2eb8956559fdd20be83321e99baf.jpg">
 
-<p align="center"> <b> haii >_< !! it's the one & only!~ </b> </p>
+#### haii >_< !! it's the one & only!~
+#### i'm catty, but you can call me brooke aswell, i'm a artist and editor. 
+⠀
+⠀
+# 𝜗 *PONYTOWN* *!* 𝜚
+if you're not from ponytown, you can just ignore this <3
+### INT / INTERACT IF YOU'RE IN THESE FANDOMS 𝜗౿
+**helluva boss • hazbin hotel** • my little pony (obv) • murder drones • the music freaks (gacha series) • the amazing ditigal circus • lolirock • sonic • harley quinn • kakegurui • toradora! • ever after high • monster high
+### DNI / DO NOT INTERACT 𝜗౿
+**a stealer/copycat (steal and/or copy ponies, color palettes, etc.)** •  ex friends • a proshipper, pedophile, or a zoophile •  invalidate identities, sexualities, pronouns, etc. • under 13 / over 24 • all you talk about is drama !!!
+### MY KINS 𝜗౿
+**helluva boss** • verosika mayday , fizzarolli , stolas
 
-## <p align="center"> [carrd](https://catty.crd.co/) ⋆ [linktree](https://linktr.ee/cattylogo) ⋆ [pinterest](https://www.pinterest.com/cattylogo) ⋆ [spotify](https://open.spotify.com/user/o5bjslzllkp6fbic4v0zavd4h?si=1efa8934ab724982&nd=1&dlsi=2f0fe793933341b2) ⋆ [tt](https://www.tiktok.com/@cattylogo) ⋆ [twt](https://x.com/cattylogo) ⋆ [ig](https://www.instagram.com/cattylogo) </p>
+**hazbin hotel** • vaggie , cherri bomb , emily , lucifer
+
+**murder drones** • v , cyn
+
+**kakegurui** • mary saotome , yumeko jabami
+
+**monster high** • cleo de'nile , spectra vondergiest
+
+**harley quinn** • posion ivy, harley quinn
+
+**the music freaks** • drew , hailey , jake
+
+# 𝜗 *THATS ALL, THANKS FOR VISITING* *!* 𝜚
