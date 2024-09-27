@@ -1,6 +1,6 @@
 #### [my carrd](https://catty.crd.co/) • [other socials](https://linktr.ee/cattylogo) • dc : @cattylogo (friends only!)
 
-<img src="https://i.pinimg.com/564x/36/5e/2e/365e2eb8956559fdd20be83321e99baf.jpg">
+<img src="https://i.pinimg.com/originals/0e/44/d5/0e44d5a306b10e4a51f9106ffe16794b.gif">
 
 #### haii >_< !! it's the one & only!~
 #### i'm catty, but you can call me brooke aswell, i'm a artist and editor. 
