@@ -1,4 +1,4 @@
-#### [my carrd](https://catty.crd.co/) • [other socials](https://linktr.ee/cattylogo) • dc : @cattylogo (friends only!)
+#### [my carrd](https://catty.crd.co/) • [other socials](https://linktr.ee/cattylogo) 
 
 <img src="https://i.pinimg.com/originals/2d/a1/cf/2da1cfd9dfd56972fc84c73983993713.gif">
 
