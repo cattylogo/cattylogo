@@ -3,7 +3,7 @@
 <img src="https://i.pinimg.com/originals/2d/a1/cf/2da1cfd9dfd56972fc84c73983993713.gif">
 
 #### haii >_< !! it's the one & only!~
-#### i'm catty, but you can call me brooke aswell, i'm a artist and editor. 
+#### i'm catty, but you can call me blaze aswell, i'm a artist and editor. 
 ⠀
 ⠀
 # 𝜗 *PONYTOWN* *!* 𝜚
