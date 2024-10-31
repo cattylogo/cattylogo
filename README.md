@@ -1,7 +1,5 @@
 #### [my carrd](https://catty.crd.co/) • [other socials](https://linktr.ee/cattylogo) 
 
-<img src="https://cdn.discordapp.com/attachments/896144373002162236/1299698418825822228/image.png?ex=671e25fa&is=671cd47a&hm=d6772ccd26e83cb92f62d982d57bf7baebed2dbb1bb8c73e1407c35e4cea4701&">
-
 #### haii >_< !! it's the one & only!~
 #### i'm catty, but you can call me blaze aswell, i'm a artist and editor. 
 ⠀
