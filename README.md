@@ -1,7 +1,6 @@
-#### [my carrd](https://catty.crd.co/) • [other socials](https://linktr.ee/cattylogo) 
+[other socials](https://linktr.ee/cattylogo) 
 
 #### haii >_< !! it's the one & only!~
-#### i'm catty, but you can call me blaze aswell, i'm a artist and editor. 
 ⠀
 ⠀
 # 𝜗 *PONYTOWN* *!* 𝜚
