@@ -1,4 +1,5 @@
-![image](https://files.catbox.moe/sywawn.gif)
+
+![ezgif-38ffc9208a4b99](https://github.com/user-attachments/assets/54fbe2c4-0b66-45c3-9e3a-dccb72da3297)
 
 #### haii >_< !! it's the one & only!~
 ⠀
