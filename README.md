@@ -13,7 +13,9 @@ i like to draw, edit, and game in my spare time. otherwise i'm sleeping.
 # ⌣ *rules and what to know* *!* ⌣
 ` if you're not from ponytown, you can just ignore this `
 ### 🍥⠀do not interaact⠀!
-under 14, nsfw, p3dos, zoophiles, lgbtqphobes, copycats, pro/darkshippers, etc.
+under 14, nsfw, ped0philess, z00philes, lgbtqphobes, copycats, pro/darkshippers, etc.
+### 🩷⠀before you interact⠀!
+**im usually afk on ponytown**, i'm very shy, i have a panic disorder, & i seperate content from their creators.
 ### 💮⠀please interact⠀!
 ` if you're in these fandoms : ` helluva boss, hazbin hotel, yandere simulator (not yandev), my little pony, murder drones, tmf (the music freaks), cookie run, lolirock, harley quinn, kakegurui, kakegurui twin, toradora!, smile precure, ever after high, monster high
 ### ♀️⠀important⠀!
