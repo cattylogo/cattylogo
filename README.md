@@ -10,7 +10,7 @@ i like to draw, edit, and game in my spare time. otherwise i'm sleeping.
 
 ⠀
 ⠀
-# ⌣ *rules and what to know* *!* ⌣
+# ۶ *rules and what to know* *!* ৎ
 ` if you're not from ponytown, you can just ignore this `
 ### 🍥⠀do not interaact⠀!
 under 14, nsfw, ped0philess, z00philes, lgbtqphobes, copycats, pro/darkshippers, etc.
