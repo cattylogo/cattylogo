@@ -18,5 +18,3 @@ under 14, nsfw, ped0philess, z00philes, lgbtqphobes, copycats, pro/darkshippers,
 **im usually afk on ponytown**, i'm very shy, i have a panic disorder, & i seperate content from their creators.
 ### 💮⠀please interact⠀!
 ` if you're in these fandoms : ` helluva boss, hazbin hotel, yandere simulator (not yandev), my little pony, murder drones, tmf (the music freaks), cookie run, lolirock, harley quinn, kakegurui, kakegurui twin, toradora!, smile precure, ever after high, monster high
-### ♀️⠀important⠀!
-i'm usually afk, so don't take it personal. also im very shy.
