@@ -1,4 +1,4 @@
-[other socials](https://linktr.ee/cattylogo) 
+![image](https://files.catbox.moe/sywawn.gif)
 
 #### haii >_< !! it's the one & only!~
 ⠀
