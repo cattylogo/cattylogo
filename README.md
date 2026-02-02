@@ -3,7 +3,7 @@
 ![ezgif-34176f0cc2aa7e](https://github.com/user-attachments/assets/e7875635-54b1-4e15-8575-f22e44f58bc8)
 
 ### *haii darlings!*
-my name is <b>cat</b>, <b>vinnious</b> or <b>lux</b> and i use <b>she/xe/him</b> pronouns. im also <b>18 years old</b> !!
+my name is <b>cat</b> or <b>cameron</b> and i use <b>she/xe</b> pronouns. im also <b>19 years old</b> !!
 
 
 i like to draw, edit, and game in my spare time. otherwise i'm sleeping.
