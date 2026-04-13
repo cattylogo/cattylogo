@@ -19,7 +19,7 @@
 - lolicons and/or shotacons
 - trumpies and/or ICE supporters
 - ex friends / ex partners
-- basically any weirdos, you're not welcome here
+- if you support ANY of the vees actions (they are all bad regardless of what you think)
 
 *Ꮺ୧.*
 
