@@ -12,7 +12,7 @@
 
 ***about me.*** 
 
-- **catty** or **carmin**. ⠀⠀ she/hym. ⠀⠀ nineteen. 
+- **catty** or **carmin**. ⠀⠀ she/any. ⠀⠀ nineteen. 
 - white, ⠀ german american. ⠀⠀ infp. ⠀⠀ aquarius. ⠀⠀ 4w5.
 - woke and cringe. ⠀⠀ editor. ⠀⠀ artist. ⠀⠀ cattylogo everywhere.
 
