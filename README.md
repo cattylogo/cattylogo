@@ -1,4 +1,4 @@
-![](https://i.postimg.cc/26bBqj4p/verosikagithub1.png)
+![](https://i.postimg.cc/L5qLyq3n/Untitled807_20260413141034.png)
 
 *Ꮺ୧.*
 
@@ -40,4 +40,4 @@
 
 *Ꮺ୧.*
 
-![](https://i.postimg.cc/ZRBy9Y61/characters3.png)
+![](https://i.postimg.cc/PJLY6LQN/Untitled808_20260413140923.png)
