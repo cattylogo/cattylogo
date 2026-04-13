@@ -17,7 +17,7 @@ want my other socials? click [here](https://solo.to/cattylogo) ! ✦
 
 - **catty** or **carmin**. ⠀⠀ she/hym. ⠀⠀ nineteen. 
 - white, ⠀ german american. ⠀⠀ infp. ⠀⠀ aquarius. ⠀⠀ 4w5.
-- woke af. ⠀⠀ editor. ⠀⠀ artist. ⠀⠀ cattylogo everywhere.
+- woke and cringe. ⠀⠀ editor. ⠀⠀ artist. ⠀⠀ cattylogo everywhere.
 
 *Ꮺ୧.*
 
