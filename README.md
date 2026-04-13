@@ -6,7 +6,7 @@
 ***strictly for ponytown.***
 
 - c+h is always alright, however if i'm surronded by friends, please do not do this.
-- if i dont respond to your message, w2i - i might be offtab ..
+- if i dont respond to your message, whisper me - i might be offtab ..
 - PLEASE do not copy my ponies, thank you.
 
 *Ꮺ୧.*
