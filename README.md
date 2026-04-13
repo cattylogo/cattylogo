@@ -25,7 +25,7 @@
 
 ***before you interact.*** 
 
-- i am ***very*** mentally ill, i'm currently trying to do exposure therapy for my agoragphobia and panic disorder, so i apologize for my absenses.
+- i am ***very*** mentally ill, i'm currently trying to do exposure therapy for my agoragphobia and panic disorder that i developed during COVID, so i apologize for my absenses.
 - be upfront and honest with me, if i do anything wrong or uncomfortable for you, please let me know!
 - i can be very up and down with my emotions, so i apologize if i get quiet out of nowhere.
 
