@@ -1,7 +1,4 @@
-want my other socials? click [here](https://solo.to/cattylogo) ! ✦
-
 ![](https://i.postimg.cc/26bBqj4p/verosikagithub1.png)
-
 
 *Ꮺ୧.*
 
