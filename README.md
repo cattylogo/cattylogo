@@ -20,7 +20,7 @@
 
 ***do not interact criteria.***
 
-- 14 and under or over 23
+- 14 and under
 - obviously anyone against the lgbtqia+
 - darkshippers. (if you ship incest, minor x adult, etc.)
 - pedophiles, predators, or groomers
