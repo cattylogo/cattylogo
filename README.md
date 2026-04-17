@@ -1,3 +1,5 @@
+![](https://i.postimg.cc/W1fkSQxj/profile-header-1-20260417034222.png)
+
 ![](https://i.postimg.cc/KYkgW0ym/Untitled807-20260417033922.png)
 
 *Ꮺ୧.*
@@ -43,3 +45,5 @@
 *Ꮺ୧.*
 
 ![](https://i.postimg.cc/1znNdvZP/Untitled808-20260417034010.png)
+
+![](https://i.postimg.cc/W1fkSQxj/profile-header-1-20260417034222.png)
