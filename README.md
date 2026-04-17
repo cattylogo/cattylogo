@@ -1,4 +1,4 @@
-![](https://i.postimg.cc/L5qLyq3n/Untitled807_20260413141034.png)
+![](https://i.postimg.cc/KYkgW0ym/Untitled807-20260417033922.png)
 
 *Ꮺ୧.*
 
@@ -14,7 +14,8 @@
 
 - **catty** or **carmin**. ⠀⠀ she/any. ⠀⠀ nineteen. 
 - white, ⠀ german american. ⠀⠀ infp. ⠀⠀ aquarius. ⠀⠀ 4w5.
-- woke and cringe. ⠀⠀ editor. ⠀⠀ artist. ⠀⠀ cattylogo everywhere.
+- omnisexual. ⠀⠀ demisexual. ⠀⠀ genderfluid. ⠀⠀ afab.
+- editor. ⠀⠀ artist. ⠀⠀ cattylogo everywhere.
 
 *Ꮺ୧.*
 
@@ -40,4 +41,4 @@
 
 *Ꮺ୧.*
 
-![](https://i.postimg.cc/PJLY6LQN/Untitled808_20260413140923.png)
+![](https://i.postimg.cc/1znNdvZP/Untitled808-20260417034010.png)
