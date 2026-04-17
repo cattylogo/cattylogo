@@ -22,6 +22,7 @@
 ***do not interact criteria.***
 
 - 14 and under
+- [basic dni criteria](https://basicdni.carrd.co/)
 - obviously anyone against the lgbtqia+
 - darkshippers. (if you ship incest, minor x adult, etc.)
 - pedophiles, predators, or groomers
