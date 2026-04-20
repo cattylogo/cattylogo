@@ -2,14 +2,6 @@
 
 *Ꮺ୧. ֺּׅ𓏽⑅*
 
-***STRICTLY FOR PONYTOWN. ✦***
-
-- c+h is always alright, however if i'm surronded by friends, please do not do this.
-- if i dont respond to your message, whisper me - i might be offtab ..
-- PLEASE do not copy my ponies, thank you.
-
-*Ꮺ୧. ֺּׅ𓏽⑅*
-
 ***ABOUT ME. ✦*** 
 
 - **catty** or **carmin**. ⠀⠀ she/any. ⠀⠀ nineteen. 
