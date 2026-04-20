@@ -1,31 +1,28 @@
-![](https://i.postimg.cc/W1fkSQxj/profile-header-1-20260417034222.png)
+![](https://i.postimg.cc/HLK50ssB/Untitled807-20260420123731.png)
 
-![](https://i.postimg.cc/KYkgW0ym/Untitled807-20260417033922.png)
+*Ꮺ୧. ֺּׅ𓏽⑅*
 
-*Ꮺ୧.*
-
-***strictly for ponytown.***
+***STRICTLY FOR PONYTOWN. ✦***
 
 - c+h is always alright, however if i'm surronded by friends, please do not do this.
 - if i dont respond to your message, whisper me - i might be offtab ..
 - PLEASE do not copy my ponies, thank you.
 
-*Ꮺ୧.*
+*Ꮺ୧. ֺּׅ𓏽⑅*
 
-***about me.*** 
+***ABOUT ME. ✦*** 
 
 - **catty** or **carmin**. ⠀⠀ she/any. ⠀⠀ nineteen. 
 - white, ⠀ german american. ⠀⠀ infp. ⠀⠀ aquarius. ⠀⠀ 4w5.
 - omnisexual. ⠀⠀ asexual. ⠀⠀ genderfluid. ⠀⠀ afab.
 - editor. ⠀⠀ artist. ⠀⠀ cattylogo everywhere.
 
-*Ꮺ୧.*
+*Ꮺ୧. ֺּׅ𓏽⑅*
 
-***do not interact criteria.***
+***DO NOT INTERACT. ✦***
 
 - 14 and under
-- [basic dni criteria](https://basicdni.carrd.co/)
-- obviously anyone against the lgbtqia+
+- [basic criteria](https://basicdni.carrd.co/)
 - darkshippers. (if you ship incest, minor x adult, etc.)
 - pedophiles, predators, or groomers
 - lolicons and/or shotacons
@@ -33,9 +30,9 @@
 - ex friends / ex partners
 - if you support ANY of the vees actions (they are all bad regardless of what you think)
 
-*Ꮺ୧.*
+*Ꮺ୧. ֺּׅ𓏽⑅*
 
-***before you interact.*** 
+***BEFORE YOU INTERACT. ✦*** 
 
 - i am ***very*** mentally ill, i'm currently trying to do exposure therapy for my agoragphobia and panic disorder that i developed during the COVID pandemic, so i apologize for my absenses.
 - as i said i'm very mentally ill, and ive been diagnosed with alot. such as agoraphobia, panic disorder, emetophobia, adhd, insomnia... sighs
@@ -43,8 +40,6 @@
 - i can be very up and down with my emotions, so i apologize if i get quiet out of nowhere.
 - i'm relatively shy when speaking to someone new, so just a heads up!
 
-*Ꮺ୧.*
+*Ꮺ୧. ֺּׅ𓏽⑅*
 
-![](https://i.postimg.cc/1znNdvZP/Untitled808-20260417034010.png)
-
-![](https://i.postimg.cc/W1fkSQxj/profile-header-1-20260417034222.png)
+![](https://i.postimg.cc/Ls7fk66v/Untitled808-20260420124028.png)
