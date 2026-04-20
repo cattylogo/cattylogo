@@ -2,6 +2,14 @@
 
 *Ꮺ୧. ֺּׅ𓏽⑅*
 
+***PONYTOWN BYI. ✦*** 
+
+- i am often offtab multitasking , so whisper me if you need something and we aren't already talking .
+- C+H is always allowed ! feel free to come say hi or just come sit with me , i don't bite .
+- please do not copy my ponies , thank you .
+
+*Ꮺ୧. ֺּׅ𓏽⑅*
+
 ***ABOUT ME. ✦*** 
 
 - **catty** or **carmin**. ⠀⠀ she/any. ⠀⠀ nineteen. 
