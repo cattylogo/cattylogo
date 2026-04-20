@@ -20,6 +20,7 @@
 - lolicons / shotacons
 - trumpies and / or ICE supporters
 - ex friends or ex partners
+- anyone overly sexual ( especially towards me , it really makes me uncomfortable )
 
 *Ꮺ୧. ֺּׅ𓏽⑅*
 
