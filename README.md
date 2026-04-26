@@ -14,7 +14,7 @@
 
 - **catty** or **carmin**. ⠀⠀ she/any. ⠀⠀ nineteen. 
 - white, ⠀ german american. ⠀⠀ infp. ⠀⠀ aquarius. ⠀⠀ 4w5.
-- omnisexual. ⠀⠀ asexual. ⠀⠀ genderfluid. ⠀⠀ afab.
+- aroace. ⠀⠀ genderfluid. ⠀⠀ afab.
 - editor since 2017. ⠀⠀ occasional artist.
 
 *Ꮺ୧. ֺּׅ𓏽⑅*
