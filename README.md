@@ -4,6 +4,7 @@
 
 ***PONYTOWN BYI. ✦*** 
 
+- i'm usually on the 18+ server in the hellaverse area ! (top right of the map)
 - i am often offtab multitasking , so whisper me if you need something and we aren't already talking .
 - C+H is always allowed ! feel free to come say hi or just come sit with me , i don't bite .
 - please do not copy my ponies , thank you .
