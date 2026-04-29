@@ -1,4 +1,4 @@
-![](https://i.postimg.cc/HLK50ssB/Untitled807-20260420123731.png)
+![](https://i.postimg.cc/htY3rRtV/Untitled807-20260428192928.png)
 
 *Ꮺ୧. ֺּׅ𓏽⑅*
 
@@ -42,4 +42,4 @@
 
 *Ꮺ୧. ֺּׅ𓏽⑅*
 
-![](https://i.postimg.cc/Ls7fk66v/Untitled808-20260420124028.png)
+![](https://i.postimg.cc/2StXwNSh/Untitled808-20260428193034.png)
