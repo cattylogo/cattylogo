@@ -19,6 +19,7 @@
 - white , german american  |  infp   aquarius   4w5
 - i'm aroace and genderfluid ! (afab)
 - editor / artist .
+- i have diagnosed bipolar , adhd , agoraphobia and a panic disorder . (i have more but these r the main ones)
 
 *Ꮺ୧.*
 
