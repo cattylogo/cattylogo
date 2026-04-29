@@ -4,7 +4,7 @@
 
 ***ponytown info ﹕*** 
 
-- i'm usually on the 18+ server in the hellaverse area ! (top right of the map)
+- i'm usually on the **main 18+ server** in the hellaverse area ! (top right of the map)
 - i am often offtab multitasking , so whisper me if you need something and we aren't already talking
 - c+h is always okay and encouraged ! feel free to come say hi or just come sit with me <3
 - please do not copy my ponies , thank you .
