@@ -14,7 +14,6 @@
 <h5 align="left"> <img width="420" height="90" src="https://i.postimg.cc/L5LMwSpn/Untitled929-20260525071201.png" />
 <h5 align="left"> ✓⠀ i'm doing therapy for my agoraphobia and panic disorder , so i apologize for my absences , especially for long periods of time .
 <h5 align="left"> ✓⠀ i will usually decline voice calls , due to bad experiences .
-<h5 align="left"> ✓⠀ i'm a blunt individual , i will always say what i mean .
 <h5 align="left"> ✓⠀ please be straight forward and honest when talking to me ― if i ever do anything uncomfortable towards you , please let me know <3
 
 ![](https://i.postimg.cc/Pqr12rjv/tumblr-376fa3a809414df93f9e38ef572e8027-0830236e-1280.png)
