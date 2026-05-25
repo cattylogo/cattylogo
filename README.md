@@ -1,50 +1,40 @@
-![](https://i.postimg.cc/htY3rRtV/Untitled807-20260428192928.png)
+![](https://i.postimg.cc/66kjzSpt/Untitled934-20260525073238.png)
+<img width="450" height="450" align="left" src="https://i.postimg.cc/8z1gshTb/Untitled157-20260525055425.png" />
+<h5 align="center"> <img width="400" height="120" src="https://i.postimg.cc/y8YpMKh4/Untitled929-20260525061225.png" />
+<h4 align="center"> ⠀───⠀⠀ catty ⠀:⠀ carmin ⠀✚ 𓈒⠀ᴗ) ❤︎⠀ she/he/it⠀⠀ ───
+<h5 align="center"> ⠀i'm⠀nineteen⠀ ୨𝑒 ⠀i⠀was⠀born⠀on⠀feburary⠀2nd⠀.⠀2007
+<h5 align="center"> ⠀infp⠀4w5⠀⠀𓐇۪͜𝄆⠀aquarius⠀,⠀moon⠀leo⠀,⠀rising⠀capricorn
+<h5 align="center"> ⠀queer⠀aroace⠀fictorose ⠀⠀˖ ͜❁¸̉ ̥̥⠀⠀ genderfluid⠀afab
+<h5 align="center"> ⠀diagonosed⠀with ⠀bipolar⠀,⠀adhd⠀,⠀agoraphobia⠀,⠀and panic disorder
+<h5 align="center"> ⠀multifandom ⠀ multishipper ⠀ ꔫ◞ ⠀ cst timezone
+<h4 align="center"> ⠀───⠀⠀ ♫ྀི ⠀verosika's ⠀& ⠀vox's ⠀no1 ⠀fan⠀⠀ ───
 
-*Ꮺ୧.*
+![](https://i.postimg.cc/Pqr12rjv/tumblr-376fa3a809414df93f9e38ef572e8027-0830236e-1280.png)
+<img width="500" height="350" align="right" src="https://i.postimg.cc/dVJWcFYn/Untitled828-20260525070619.png" />
+<h5 align="left"> <img width="480" height="110" src="https://i.postimg.cc/L5LMwSpn/Untitled929-20260525071201.png" />
+<h5 align="left"> ✓⠀ i'm doing therapy for my agoraphobia and panic disorder , so i apologize for my absences , especially for long periods of time .
+<h5 align="left"> ✓⠀ i will usually decline voice calls , due to bad experiences .
+<h5 align="left"> ✓⠀ i'm a blunt individual , i will always say what i mean .
+<h5 align="left"> ✓⠀ please be straight forward and honest when talking to me ― if i ever do anything uncomfortable towards you , please let me know <3
 
-***ponytown info ﹕*** 
+![](https://i.postimg.cc/Pqr12rjv/tumblr-376fa3a809414df93f9e38ef572e8027-0830236e-1280.png)
+<img width="450" height="470" align="left" src="https://i.postimg.cc/hj6B2rfY/Untitled157-20260525074213.png" />
+<h3 align="left"> <img width="510" height="120" src="https://i.postimg.cc/3NmHVhTN/Untitled929-20260525071034.png" />
+<h5 align="left"> ⃠⠀ preferably anyone under 14
+<h5 align="left"> ⃠⠀ darkshippers ( if you ship minor x adult , victim x abuser , or incest )
+<h5 align="left"> ⃠⠀ pedophiles or predators , shotacons or lolicons
+<h5 align="left"> ⃠⠀ trumpies and / or ICE supporters
+<h5 align="left"> ⃠⠀ ex friends or ex partners
+<h5 align="left"> ⃠⠀ anyone overly sexual
+<h5 align="left"> ⃠⠀ if you don't respect these rules , i will be confrontational about it .
 
-- i'm usually on the **main 18+ server** in the hellaverse area ! (top right of the map)
-- i am often offtab multitasking , so whisper me if you need something and we aren't already talking
-- c+h is always okay and encouraged ! feel free to come say hi or just come sit with me <3
-- please do not copy my ponies , thank you .
 
-*Ꮺ୧.*
+![](https://i.postimg.cc/Pqr12rjv/tumblr-376fa3a809414df93f9e38ef572e8027-0830236e-1280.png)
+<h2 align="center"> ꒰ ܸ𐄙 ༝ 𐄙 ܸ𐨯ﾟ⸒⠀⠀煉⠀⠀ಣ⠀⠀ ֯໒ ͚.ི⠀ʆ ͜͝ᣟ⠀⠀ ꘓ ᩧ
+<details>
+<summary><h2 align="center"> PONYTOWN SCREENIES⠀.</summary>
+  
+![](https://i.postimg.cc/w38MtHz4/ponypics.png)
+</details>
 
-***about me ﹕*** 
-
-- my name is **catty** or **carmin**.
-- any pronouns work for me , but **she/xe** is preferred.
-- i'm **nineteen** . born feburary 2nd, 2007
-- white , german american  |  infp   aquarius   4w5
-- i'm aroace and genderfluid ! (afab)
-- editor / artist .
-- i have diagnosed bipolar , adhd , agoraphobia and a panic disorder . (i have more but these r the main ones)
-
-*Ꮺ୧.*
-
-***dni ﹕***
-
-- [basic criteria](https://basicdni.carrd.co/)
-- anyone 14 and under
-- darkshippers. (if you ship incest, minor x adult, etc)
-- pedophiles, predators, or groomers
-- lolicons / shotacons
-- trumpies and / or ICE supporters
-- ex friends or ex partners
-- anyone overly sexual ( especially towards me , it really makes me uncomfortable )
-
-*Ꮺ୧.*
-
-***byi ﹕*** 
-
-- most definitely cringe and free
-- i will usually decline VCs, due to bad experience and just discomfort
-- i am ***very*** mentally ill, i'm currently trying to do exposure therapy for my agoragphobia and panic disorder that i developed during the COVID pandemic, so i apologize for my absenses .
-- be straight forward when talking to me ― if i ever do anything uncomfortable towards you , lmk
-- i can be very up and down with my emotions, so i apologize if i get quiet out of nowhere .
-- i'm relatively shy when speaking to someone new, so just a heads up !
-
-*Ꮺ୧.*
-
-![](https://i.postimg.cc/2StXwNSh/Untitled808-20260428193034.png)
+![](https://i.postimg.cc/fWG25FRZ/Untitled934-20260525073232.png)
