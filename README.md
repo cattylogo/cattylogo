@@ -1,6 +1,6 @@
 ![](https://i.postimg.cc/66kjzSpt/Untitled934-20260525073238.png)
 <img width="450" height="450" align="left" src="https://i.postimg.cc/8z1gshTb/Untitled157-20260525055425.png" />
-<h5 align="center"> <img width="400" height="120" src="https://i.postimg.cc/y8YpMKh4/Untitled929-20260525061225.png" />
+<h5 align="center"> <img width="350" height="110" src="https://i.postimg.cc/y8YpMKh4/Untitled929-20260525061225.png" />
 <h4 align="center"> ⠀───⠀⠀ catty ⠀:⠀ carmin ⠀✚ 𓈒⠀ᴗ) ❤︎⠀ she/he/it⠀⠀ ───
 <h5 align="center"> ⠀i'm⠀nineteen⠀ ୨𝑒 ⠀i⠀was⠀born⠀on⠀feburary⠀2nd⠀.⠀2007
 <h5 align="center"> ⠀infp⠀4w5⠀⠀𓐇۪͜𝄆⠀aquarius⠀,⠀moon⠀leo⠀,⠀rising⠀capricorn
