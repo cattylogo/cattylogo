@@ -18,7 +18,7 @@
 <h5 align="left"> ✓⠀ please be straight forward and honest when talking to me ― if i ever do anything uncomfortable towards you , please let me know <3
 
 ![](https://i.postimg.cc/Pqr12rjv/tumblr-376fa3a809414df93f9e38ef572e8027-0830236e-1280.png)
-<img width="450" height="470" align="left" src="https://i.postimg.cc/hj6B2rfY/Untitled157-20260525074213.png" />
+<img width="420" height="450" align="left" src="https://i.postimg.cc/hj6B2rfY/Untitled157-20260525074213.png" />
 <h3 align="left"> <img width="490" height="120" src="https://i.postimg.cc/3NmHVhTN/Untitled929-20260525071034.png" />
 <h5 align="left"> ⃠⠀ preferably anyone under 14
 <h5 align="left"> ⃠⠀ darkshippers ( if you ship minor x adult , victim x abuser , or incest )
