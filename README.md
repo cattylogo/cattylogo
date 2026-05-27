@@ -11,14 +11,14 @@
 
 ![](https://i.postimg.cc/Pqr12rjv/tumblr-376fa3a809414df93f9e38ef572e8027-0830236e-1280.png)
 <img width="380" height="270" align="right" src="https://i.postimg.cc/dVJWcFYn/Untitled828-20260525070619.png" />
-<h5 align="left"> <img width="420" height="90" src="https://i.postimg.cc/L5LMwSpn/Untitled929-20260525071201.png" />
+<h5 align="center"> <img width="430" height="90" src="https://i.postimg.cc/L5LMwSpn/Untitled929-20260525071201.png" />
 <h5 align="left"> ✓⠀ i'm doing therapy for my agoraphobia and panic disorder , so i apologize for my absences , especially for long periods of time .
 <h5 align="left"> ✓⠀ i will usually decline voice calls , due to bad experiences .
 <h5 align="left"> ✓⠀ please be straight forward and honest when talking to me ― if i ever do anything uncomfortable towards you , please let me know <3
 
 ![](https://i.postimg.cc/Pqr12rjv/tumblr-376fa3a809414df93f9e38ef572e8027-0830236e-1280.png)
 <img width="420" height="420" align="left" src="https://i.postimg.cc/hj6B2rfY/Untitled157-20260525074213.png" />
-<h3 align="left"> <img width="390" height="90" src="https://i.postimg.cc/3NmHVhTN/Untitled929-20260525071034.png" />
+<h3 align="center"> <img width="390" height="90" src="https://i.postimg.cc/3NmHVhTN/Untitled929-20260525071034.png" />
 <h5 align="left"> ⃠⠀ preferably anyone under 14
 <h5 align="left"> ⃠⠀ darkshippers ( if you ship minor x adult , victim x abuser , or incest )
 <h5 align="left"> ⃠⠀ pedophiles or predators , shotacons or lolicons
