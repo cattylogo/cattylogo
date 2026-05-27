@@ -1,13 +1,13 @@
 ![](https://i.postimg.cc/66kjzSpt/Untitled934-20260525073238.png)
 <img width="450" height="450" align="left" src="https://i.postimg.cc/8z1gshTb/Untitled157-20260525055425.png" />
 <h5 align="center"> <img width="350" height="110" src="https://i.postimg.cc/y8YpMKh4/Untitled929-20260525061225.png" />
-<h4 align="center"> ⠀───⠀⠀ catty ⠀:⠀ carmin ⠀✚ 𓈒⠀ᴗ) ❤︎⠀ she/he/it⠀⠀ ───
+<h4 align="center"> ⠀catty ⠀:⠀ carmin ⠀✚ 𓈒⠀ᴗ) ❤︎⠀ she/he/it
 <h5 align="center"> ⠀i'm⠀nineteen⠀ ୨𝑒 ⠀i⠀was⠀born⠀on⠀feburary⠀2nd⠀.⠀2007
 <h5 align="center"> ⠀infp⠀4w5⠀⠀𓐇۪͜𝄆⠀aquarius⠀,⠀moon⠀leo⠀,⠀rising⠀capricorn
 <h5 align="center"> ⠀queer⠀aroace⠀fictorose ⠀⠀˖ ͜❁¸̉ ̥̥⠀⠀ genderfluid⠀afab
 <h5 align="center"> ⠀diagonosed⠀with ⠀bipolar⠀,⠀adhd⠀,⠀agoraphobia⠀,⠀and panic disorder
 <h5 align="center"> ⠀multifandom ⠀ multishipper ⠀ ꔫ◞ ⠀ cst timezone
-<h4 align="center"> ⠀───⠀⠀ ♫ྀི ⠀verosika's ⠀& ⠀vox's ⠀no1 ⠀fan⠀⠀ ───
+<h4 align="center"> ⠀♫ྀི ⠀verosika's ⠀& ⠀vox's ⠀no1 ⠀fan
 
 ![](https://i.postimg.cc/Pqr12rjv/tumblr-376fa3a809414df93f9e38ef572e8027-0830236e-1280.png)
 <img width="380" height="270" align="right" src="https://i.postimg.cc/dVJWcFYn/Untitled828-20260525070619.png" />
