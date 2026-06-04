@@ -8,7 +8,7 @@
 <br><br><br>
 
 <p align="center">
-  <a href="https://tiktok.com/@cattylogo">tt</a>⠀⏔⠀<a href="https://x.com/cattylogo">twt</a>⠀⏔⠀<a href="https://discord.com/users/866195935435816991">dc</a>⠀⏔⠀‎<a href="https://solo.to/cattylogo">all socials</a> 
+  <a href="https://tiktok.com/@cattylogo">tt</a>⠀⏔⠀<a href="https://x.com/cattylogo">twt</a>⠀⏔⠀<a href="https://catty.crd.co">carrd</a>⠀⏔⠀‎<a href="https://solo.to/cattylogo">all socials</a> 
 </p>
 
 <p align="center"> 𓏼 ˚̣̣̣  ͜⁺◞ ི݂ ♡ ݂◟ྀ ͜⁺  ˚̣̣̣ 𓏼
