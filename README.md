@@ -1,7 +1,7 @@
   
   </p>
 <img
-  src="https://i.postimg.cc/fbdqFWzN/Untitled948-20260601121926.png"
+  src="https://i.postimg.cc/GmYV2xX6/a8ff850060ec74f30d9ee72652321e66.jpg"
   width="450"
   align="left"
 
@@ -13,9 +13,9 @@
 
 <p align="center"> 𓏼 ˚̣̣̣  ͜⁺◞ ི݂ ♡ ݂◟ྀ ͜⁺  ˚̣̣̣ 𓏼
   
-$$\color{#ffffff}{\text{catty ⠀/⠀ carmin ⠀⠀ ִ ̫̫⑅ ۫ ✿ 19 ՞}}$$
-$$\color{#666564}{\text{she⠀✦⠀it⠀✦⠀he⠀✦⠀xe⠀✦⠀bunny}}$$
-$$\color{#969695}{\text{꒰ ۪ ɕ⑅݂ȶׂׅ ۫⠀ queer ⠀aroace ⠀genderfluid}}$$
+$$\color{#ffffff}{\text{catty / catrina⠀ 𝜗℘ }}$$
+$$\color{#666564}{\text{she⠀✦⠀it⠀✦⠀he⠀◡◡⠀19⠀}}$$
+$$\color{#969695}{\text{꒰ ۪ ɕ⑅݂ȶׂׅ ۫⠀ omni ⠀aroace ⠀genderfluid}}$$
 $$\color{#666564}{\text{ no dni i just block ⠀―⠀ multishipper }}$$
 
 <p align="center">
