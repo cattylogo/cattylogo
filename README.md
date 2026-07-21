@@ -1,4 +1,7 @@
 <div align="center">
+
+best viewed on light mode + pc ꪮ౿
+
  
 <h4 align="center"
   
@@ -15,11 +18,9 @@
 
  <p align="center"> <img width="380" alt="image" src="https://i.postimg.cc/RVxYjgSB/Untitled1086-20260721045045.png" />
  </p>
-
-best viewed on light mode + pc !
  
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31pxpb4wr6skucic6jhfqhwjfi6e&cover_image=true&theme=spotify-embed&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&mode=light&bar_color=cf7aa5&bar_color_cover=false"width="350"">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31pxpb4wr6skucic6jhfqhwjfi6e&cover_image=true&theme=spotify-embed&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&mode=light&bar_color=cf7aa5&bar_color_cover=false"width="450"">
   </a>
 </p>
