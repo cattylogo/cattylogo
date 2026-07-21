@@ -23,9 +23,6 @@
 
  <p align="center"> <img width="400" alt="image" src="https://i.postimg.cc/HnGw87Js/Untitled1074-20260720005002.png" />
  </p>
-  ‎                    ‎   ‎        ‎‎‎  ‎  ‎    ‎     ‎  ‎    ‎      ‎   ‎    ‎‎   ‎ ‎   ‎     ‎   
-<p align="center">
-wip
 
 <p align="center"> <img width="400" alt="image" src="https://i.postimg.cc/sDgX9g5w/Untitled1084-20260721042352.png" />
  </p>
