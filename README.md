@@ -13,9 +13,9 @@
  </p>
 <img align="left" width="420" alt="image" src="https://i.postimg.cc/25PnbBJx/Untitled1077-20260721022011.png" /> 
 <p align="center"> <a href="https://tiktok.com/@cattylogo">
- <img  width="200"  alt="image" src="https://i.postimg.cc/QCLtJQkw/Untitled1083-20260721041034.png" />
+ <img  width="192"  alt="image" src="https://i.postimg.cc/QCLtJQkw/Untitled1083-20260721041034.png" />
  <a href="https://x.com/cattylogo">     
- <img  width="215" src="https://i.postimg.cc/x8rC3vy7/Untitled1083-20260721041156.png" />
+ <img  width="207" src="https://i.postimg.cc/x8rC3vy7/Untitled1083-20260721041156.png" />
  </p>
 
  <p align="center"> <img width="400" alt="image" src="https://i.postimg.cc/sDgX9g5w/Untitled1084-20260721042352.png" />
