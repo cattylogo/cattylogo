@@ -13,7 +13,7 @@
 <p align="center"> <img width="350" alt="image" src="https://i.postimg.cc/sDgX9g5w/Untitled1084-20260721042352.png" />
  </p>
 
- <p align="center"> <img width="400" alt="image" src="https://i.postimg.cc/RVxYjgSB/Untitled1086-20260721045045.png" />
+ <p align="center"> <img width="380" alt="image" src="https://i.postimg.cc/RVxYjgSB/Untitled1086-20260721045045.png" />
  </p>
  
 <p align="center">
