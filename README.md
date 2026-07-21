@@ -15,6 +15,8 @@
 
  <p align="center"> <img width="380" alt="image" src="https://i.postimg.cc/RVxYjgSB/Untitled1086-20260721045045.png" />
  </p>
+
+best viewed on light mode + pc !
  
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
