@@ -1,9 +1,10 @@
 
 <div align="center">
+  
+![](https://komarev.com/ghpvc/?username=cattylogo&style=plastic&label=⠀👀⠀&color=25c4de) ⠀ ׅ ͙͘͡★ ۫ ⠀.⠀⠀
 
 ![](https://i.postimg.cc/qMgkJtLJ/Untitled1197-20260901233056.png)
 
-![](https://komarev.com/ghpvc/?username=cattylogo&style=plastic&label=⠀👀⠀&color=25c4de) ⠀ ׅ ͙͘͡★ ۫ ⠀.⠀⠀ 
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
