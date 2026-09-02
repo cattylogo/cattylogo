@@ -1,5 +1,5 @@
 
-![](https://i.postimg.cc/qMgkJtLJ/Untitled1197-20260901233056.png)
+![](https://i.postimg.cc/G2syp3x3/Untitled1203-20260902074916.png)
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -7,4 +7,4 @@
   </a>
 </p>
 
-![](https://i.postimg.cc/wTJ9yCSw/Untitled1199-20260901232929.png)
+![](https://i.postimg.cc/gkpZYWwQ/Untitled1203-20260902075003.png)
