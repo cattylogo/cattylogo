@@ -3,9 +3,6 @@
  </p>
 
  
- <p align="center">
-   <img align="center" width="700" alt="image" src="https://i.postimg.cc/0Qhtw5y7/Untitled1268-20260925081651.png" /> 
- </p>
   
 <p align="center">
   <img align="center" width="300" alt="image" src="https://i.postimg.cc/FK9VddbJ/IMG-1131.gif" /> 
