@@ -1,4 +1,4 @@
-<img src="https://i.postimg.cc/sxn3s9JQ/IMG-9032.gif" width=500 align="center">
+<img src="https://i.postimg.cc/sxn3s9JQ/IMG-9032.gif" width=1000 align="center">
 
 <p align="center">
 <img src="https://i.postimg.cc/7Pt9JJbn/Untitled1324-20261025165400.png" width=350 align="left"
