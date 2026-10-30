@@ -1,7 +1,7 @@
 <img src="https://i.postimg.cc/sxn3s9JQ/IMG-9032.gif" width=1000 align="center">
 
 <p align="center">
-<img src="https://i.postimg.cc/QCLkn9rM/Untitled1336-20261030020214.png" width=300 align="center"
+<img src="https://i.postimg.cc/QCLkn9rM/Untitled1336-20261030020214.png" width=400 align="center"
    </p>
    
    <p align="center">
