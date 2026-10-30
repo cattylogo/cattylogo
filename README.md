@@ -10,8 +10,8 @@
   </a>
 
 ### <p align="center"> ──　<b> 𝓒𝗮𝘁𝘁𝘆 </b>　·　✧　·　<b> 𝓒𝗮𝘁𝗿𝗶𝗻𝗮 </b>　── </p>
-<p align="center"> <ins>shᥱ</ins> hᥱr. 　 ⊹ ࣪ ˖ 　 ᥒιᥒᥱtᥱᥱᥒ. 　 ˖ ࣪ ⊹ 　 ᥲroᥲᥴᥱ gιrᥣsριkᥱ! </p>
-<p align="center"> whιtᥱ.　 gᥱrmᥲᥒ ᥲmᥱrιᥴᥲᥒ. 　 ❝　 vᥱᥱs ᥱᥒthυsιᥲst　! 　❞ 　 </p>
+<p align="center"> <ins>she</ins> her 　 ⊹ ࣪ ˖ 　 nineteen 　 ˖ ࣪ ⊹ 　 aroace girlspike </p>
+<p align="center"> white　 german american 　 ❝　 vees enthusiast　! 　❞ 　 </p>
 
 ------
 
