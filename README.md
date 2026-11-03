@@ -19,7 +19,7 @@
 ### <p align="center"> ──　✧　 <ins>𝓘𝗻𝘁</ins>　&　<ins>𝓓𝗻𝗶</ins> 　✧　── </p>
 <p align="center"> <ins>𝐈𝐍𝐓𝐄𝐑𝐀𝐂𝐓</ins> 　:　 18 or older , staticmoth / voxval shippers , vox ships , rarepairs / crackships , vee fans , stella & blitzo fans . . .   </p>
 <p align="center"> <ins>𝐈𝐍𝐓𝐄𝐑𝐀𝐂𝐓 𝐖𝐈𝐓𝐇 𝐂𝐀𝐔𝐓𝐈𝐎𝐍</ins> 　:　 16 / 17 , radioapple shippers , vivziepop supporters , tadc fandom , mha fandom , mlp fandom . . .  </p> 
-<p align="center"> <ins>𝐃𝐎 𝐍𝐎𝐓 𝐈𝐍𝐓𝐄𝐑𝐀𝐂𝐓</ins> 　:　 under 16 , stolitz , huskerdust , valangel , polyvees , pro/darkship , HEAVILY sexual individuals , pedophiles , predators , groomers , radqueers , trump supporters , if you idolize politicians , if you fetishize lgbtq+ experiences or people , if you use mental illness as a excuse to be a dick , and if you fall under the <a href="https://basic-dni.crd.co/">basic dni</a> . . . </p>
+<p align="center"> <ins>𝐃𝐎 𝐍𝐎𝐓 𝐈𝐍𝐓𝐄𝐑𝐀𝐂𝐓</ins> 　:　 under 16 , stolitz shippers , huskerdust shippers , valangel shippers , polyvees shippers , pro/darkship , HEAVILY sexual individuals , pedophiles , predators , groomers , radqueers , trump supporters , if you idolize politicians , if you fetishize lgbtq+ experiences or people , if you use mental illness as a excuse to be a dick , and if you fall under the <a href="https://basic-dni.crd.co/">basic dni</a> . . . </p>
 
 <p align="center"> <mark>　if you do not respect my dni, you will be blocked immediately.　</mark> </p>
 
