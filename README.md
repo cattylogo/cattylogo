@@ -1,7 +1,7 @@
 <img src="https://i.postimg.cc/kMt3DNk2/tumblr-d555d2b37b39edaf07735cb12489813d-cdf08db5-1280.png" width=1000 align="center">
 
 <p align="center">
-<img src="https://i.postimg.cc/QCLkn9rM/Untitled1336-20261030020214.png" width=370 align="left"
+<img src="https://i.postimg.cc/TwYVhf3y/Untitled828-20261104053204.png" width=400 align="left"
    </p>
    
 <p align="center">
