@@ -26,6 +26,6 @@
 ------
 
 ### <p align="center"> ──　✧　 <ins>𝓚𝗶𝗻𝘀</ins>　! 　✧　── </p>
-<p align="center"> <ins>𝐊𝐈𝐍𝐒</ins> 　:　 the vees , blitzo , stella , octavia , vassago , verosika , husk , twilight sparkle , rarity , cozy glow , cleo de nile , catty noir , ellisabat , kitty cheshire , bakugo katsuki , uraraka ochako , duchess (aristocats) , coraline , mangle , chica , mary saotome , monika , maddy (euphoria) , catwoman , poison ivy , eevee , rumi , shadow the hedgehog , black sapphire cookie , sugarfly cookie  </p>
+<p align="center"> <ins>𝐊𝐈𝐍𝐒</ins> 　:　 the vees , blitzo , stella , octavia , vassago , verosika , husk , twilight sparkle , rarity , cozy glow , cleo de nile , catty noir , ellisabat , kitty cheshire , bakugo katsuki , uraraka ochako , duchess (aristocats) , coraline , mangle , chica , mary saotome , monika (ddlc) , maddy (euphoria) , catwoman , poison ivy , eevee , rumi , shadow the hedgehog , black sapphire cookie , sugarfly cookie , athena (epic) , marvin (falsettos) , starfire , cat valentine , maxxine (ginny & georgia) , the cheshire cat , tiana , belle , rapunzel , ryoba aishi (yansim) , elle woods </p>
 
 <img src="https://i.postimg.cc/kMt3DNk2/tumblr-d555d2b37b39edaf07735cb12489813d-cdf08db5-1280.png" width=1000 align="center">
