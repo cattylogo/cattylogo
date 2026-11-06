@@ -1,7 +1,7 @@
 <img src="https://i.postimg.cc/kMt3DNk2/tumblr-d555d2b37b39edaf07735cb12489813d-cdf08db5-1280.png" width=1000 align="center">
 
 <p align="center">
-<img src="https://i.postimg.cc/TwYVhf3y/Untitled828-20261104053204.png" width=400 align="left"
+<img src="https://i.postimg.cc/pr5tVLhD/Untitled828-20261106031708.png" width=400 align="left"
    </p>
    
 <p align="center">
@@ -17,7 +17,7 @@
 ------
 
 ### <p align="center"> ──　✧　 <ins>𝓘𝗻𝘁</ins>　&　<ins>𝓓𝗻𝗶</ins> 　✧　── </p>
-<p align="center"> <ins>𝐈𝐍𝐓𝐄𝐑𝐀𝐂𝐓</ins> 　:　 18 or older , stolago shippers , vox or val ships , rarepairs / crackships , vee fans , vassago fans , stella fans , blitz fans , analog horror enjoyers , yappers . . .   </p>
+<p align="center"> <ins>𝐈𝐍𝐓𝐄𝐑𝐀𝐂𝐓</ins> 　:　 18 or older , vox or val ships , rarepairs / crackships , vee fans , vassago fans , stella fans , blitz fans , analog horror enjoyers , yappers . . .   </p>
 <p align="center"> <ins>𝐈𝐍𝐓𝐄𝐑𝐀𝐂𝐓 𝐖𝐈𝐓𝐇 𝐂𝐀𝐔𝐓𝐈𝐎𝐍</ins> 　:　 16 / 17 , radioapple shippers , vivziepop supporters , tadc fandom , mha fandom , mlp fandom . . .  </p> 
 <p align="center"> <ins>𝐃𝐎 𝐍𝐎𝐓 𝐈𝐍𝐓𝐄𝐑𝐀𝐂𝐓</ins> 　:　 under 16 , stolitz shippers , huskerdust shippers , valangel shippers , polyvees shippers , pro/darkship , HEAVILY sexual individuals , pedophiles , predators , groomers , radqueers , trump supporters , if you idolize politicians , if you fetishize lgbtq+ experiences or people , if you use mental illness as a excuse to be a dick , and if you fall under the <a href="https://basic-dni.crd.co/">basic dni</a> . . . </p>
 
